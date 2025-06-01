@@ -1,1 +1,1 @@
-"# A Seren Fans" 
+"# A Web3 Fans" 
